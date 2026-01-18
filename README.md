@@ -1,1 +1,1 @@
-# it's hoanghiep time! 🧠
+# It's hoanghiep time! 🧠
